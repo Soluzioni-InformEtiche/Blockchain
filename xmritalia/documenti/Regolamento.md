@@ -1,4 +1,4 @@
-Regolamento gruppo Telegram XMR Italia (@xmritalia)
+**Regolamento gruppo Telegram XMR Italia (@xmritalia)** https://t.me/xmritalia
 <br/>
 Al fine di supportare discussioni costruttive, mantenere un livello minimo di decenza e di educazione, e promuovere la condivisione libera di informazioni, è vietato:\
 <br/>
