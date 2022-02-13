@@ -1,4 +1,4 @@
-**Regolamento gruppo Telegram Bitgreen Italia (@bitgreenitalia)** https://t.me/bitgreenitalia
+**Regolamento gruppo Telegram Blockchain Sostenibili (@blockchainsostenibile)** https://t.me/blockchainsostenibile
 <br/>
 Al fine di supportare discussioni costruttive, mantenere un livello minimo di decenza e di educazione, e promuovere la condivisione libera di informazioni, è vietato:\
 <br/>
